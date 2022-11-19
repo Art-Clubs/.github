@@ -13,3 +13,4 @@ Art Clubs is our answer to the greedy tactics of some big corporations.
 Check what we have to offer in terms of creative freedom at [ArtClubs.net](https://artclubs.net).
 Do you have any question? Let us know! - hey@artclubs.net
 
+Follow us [@Art_Clubs](https://twitter.com/art_clubs)
